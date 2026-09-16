@@ -188,7 +188,7 @@ Aspiring Web3 & Blockchain Developer
 https://github.com/MohamedBondok-real
 
 **LinkedIn:**  
-https://www.linkedin.com/in/mohamed-bondok-7226793b
+www.linkedin.com/in/mohamed-bondok-7226793b5
 
 ---
 
